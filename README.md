@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @MuhammedElsaid
-- 👀 I’m interested in CUM
+- 👀 I’m interested in [CUM]: https://www.youtube.com/watch?v=12rT3uotaqk
 - 🌱 I’m currently learning CUM
 - 💞️ I’m looking to collaborate on CUM
-- 📫 How to reach me BY CUMMING
+- 📫 How to reach me BY [CUMMING]: https://www.youtube.com/watch?v=MhjVnw-bc54
 
 <!---
 MuhammedElsaid/MuhammedElsaid is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
