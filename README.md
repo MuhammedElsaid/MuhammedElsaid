@@ -4,6 +4,8 @@
 - 💞️ I’m looking to collaborate on CUM
 - 📫 How to reach me BY [CUMMING]: https://www.youtube.com/watch?v=MhjVnw-bc54
 
+[CUMMING]: https://www.youtube.com/watch?v=MhjVnw-bc54
+[CUM]: https://www.youtube.com/watch?v=12rT3uotaqk
 <!---
 MuhammedElsaid/MuhammedElsaid is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
